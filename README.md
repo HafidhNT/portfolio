@@ -1,1 +1,1 @@
-![Slide7](slide7.png?v=4)
+![Slide7](slide7.png?v=5)
